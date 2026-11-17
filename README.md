@@ -49,4 +49,4 @@ Não vendemos apenas sites. Entregamos uma **vitrine profissional** com atualiza
 
 Se você tem uma loja e quer começar a vender pela internet **sem complicação**, me chama no Instagram. Vamos conversar!
 
-**Vitrine Digital — A vitrine que nunca fecha.**
+**Vitrine Digital - A vitrine que nunca fecha.**
